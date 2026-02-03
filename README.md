@@ -1,0 +1,2 @@
+# Veri Eğitim Çalışmalar
+
